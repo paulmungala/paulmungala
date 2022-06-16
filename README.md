@@ -1,7 +1,7 @@
 ### Hi there, I'm Mungalaaa 👋 
 
 
-## Frontend Junkie , fullstack tinker, crypto ethusiast
+## Builder🛠
 
 I just love building stuff 👨‍💻
 
